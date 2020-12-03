@@ -1,3 +1,4 @@
-# Welcome to my blog
+# Welcome to my boring page blog
 
-I'm glad you are here. I plan to talk about ...
+Feel free to try
+I'm glad you are here. Cus it wastes yr times and I won't do anything with this blog
